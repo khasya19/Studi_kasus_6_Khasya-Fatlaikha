@@ -1,0 +1,1 @@
+# Studi_kasus_6_Khasya-Fatlaikha
